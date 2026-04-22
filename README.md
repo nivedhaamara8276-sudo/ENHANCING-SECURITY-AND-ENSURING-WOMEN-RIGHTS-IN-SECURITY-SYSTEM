@@ -1,0 +1,2 @@
+# ENHANCING-SECURITY-AND-ENSURING-WOMEN-RIGHTS-IN-SECURITY-SYSTEM
+The Women Safety System enhances personal security using mobile technology, GPS tracking, and real-time alerts. It enables users to send emergency messages with live location to trusted contacts. Features like panic buttons and voice activation ensure quick response, providing a reliable and user-friendly solution for women’s safety.
